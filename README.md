@@ -1,46 +1,43 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Зима" ("Потолок ледяной) Эдуард Хиль 1970г. 1 куплет
-![з2](https://github.com/user-attachments/assets/9d794444-49ac-417a-8d1c-b4247efc647c)
+"Зима" ("Потолок ледяной) Эдуард Хиль 1970г. 2 куплет
+![з6](https://github.com/user-attachments/assets/4a321929-32e8-48cc-a944-4a74f4cc4f99)
 
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/idIQIBY-iSQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/zSXJFp-BMiA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-У леса на опушке
-Жила зима в избушке...
-Она снежки солила
-В березовой кадушке.
-Она сучила пряжу,
-Она ткала холсты,
-Ковала ледяные
-Да над реками мосты.
+Ходила на охоту,
+Гранила серебро,
+Сажала тонкий месяц
+В хрустальное ведро...
+Деревьям шубы шила,
+Торила санный путь.
+А после в лес спешила,
+Чтоб в избушке отдохнуть
 
 Предыдущий урок:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/6d176f3f-6d63-4dec-a266-67ae585c4c99 =200x200)
-stolbitsa.com/fistachka/fantazer5<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/a5db23b1-4baa-42f4-9f34-61e5caf9d54a =200x200)
+stolbitsa.com/fistachka/zima2<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-“Zima” ("Potolok ledyanoj) Eduard Hil' 1970g.  1 st verse
-![з2](https://github.com/user-attachments/assets/9d794444-49ac-417a-8d1c-b4247efc647c)
+“Zima” ("Potolok ledyanoj) Eduard Hil' 1970g.  3 st verse
+![з6](https://github.com/user-attachments/assets/4a321929-32e8-48cc-a944-4a74f4cc4f99)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/E_QANMn_H9s" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/JAdJu8cr2FM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-U lesa na opushke
-ZHila zima v izbushke...
-Ona snezhki solila
-V berezovoj kadushke.
-Ona suchila pryazhu,
-Ona tkala holsty,
-Kovala ledyanye
-Da nad rekami mosty.
+Hodila na ohotu,
+Granila serebro,
+Sazhala tonkij mesyac
+V hrustal'noe vedro...
+Derev'yam shuby shila,
+Torila sannyj put'.
+A posle v les speshila,
+CHtob v izbushke otdohnut'
 
 Previous lesson:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/6d176f3f-6d63-4dec-a266-67ae585c4c99 =200x200)
-stolbitsa.com/fistachka/fantazer5<br><br>
-![з6](https://github.com/user-attachments/assets/4a321929-32e8-48cc-a944-4a74f4cc4f99)
-![з5](https://github.com/user-attachments/assets/f4c7054e-9de8-4484-acf2-dc6d9f3c9351)
-
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/a5db23b1-4baa-42f4-9f34-61e5caf9d54a =200x200)
+stolbitsa.com/fistachka/zima2<br><br>
 
