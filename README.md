@@ -40,4 +40,7 @@ Da nad rekami mosty.
 Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/6d176f3f-6d63-4dec-a266-67ae585c4c99 =200x200)
 stolbitsa.com/fistachka/fantazer5<br><br>
+![з6](https://github.com/user-attachments/assets/4a321929-32e8-48cc-a944-4a74f4cc4f99)
+![з5](https://github.com/user-attachments/assets/f4c7054e-9de8-4484-acf2-dc6d9f3c9351)
+
 
